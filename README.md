@@ -1,7 +1,7 @@
 # obsiban
 
 
-[[Сравнение Geely Coolray(BelGee X50) и LADA Vesta SW Cross в комплектации Teхно'24]]
+[Cравнение](Сравнение Geely Coolray(BelGee X50) и LADA Vesta SW Cross в комплектации Teхно'24)
 
 
 
